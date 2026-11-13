@@ -1,0 +1,2 @@
+# Treding-teknikak
+Analisa market
